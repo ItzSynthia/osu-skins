@@ -12,6 +12,7 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 # January 2025
 
 * [Miyuki NM (Vynx Edit)](https://link.issou.best/skin/26356) | [Original](https://skins.osuck.net/skins/3040?v=0)
+
   ![image](https://i.ytimg.com/vi_webp/OadHnNyVFQc/mqdefault.webp)
 
   # February 2025
@@ -25,6 +26,7 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 * [mafuyu simple Vynx Edit](https://www.mediafire.com/file/i712vokhn4u6k1e/mafuyu_simple_Vynx_Edit.osk/file) | [Original](https://skins.osuck.net/skins/3802?v=0)
   
 * [mafuyu simple Vynx Edit V2](https://www.mediafire.com/file/2plngvsy9hwcm35/mafuyu_simple_Vynx_Edit_V2.osk/file)
+
   ![image](https://skins.osuck.net/images/screenshots/50ed061d0084551caa3b7d4ec7a26b26_xs.webp)
 
   # May-June 2025
