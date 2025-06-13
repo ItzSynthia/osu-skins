@@ -15,7 +15,7 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 
   ![image](https://i.ytimg.com/vi_webp/OadHnNyVFQc/mqdefault.webp)
 
-  # February 2025
+# February 2025
 
 * [Vynx Mix Skin February](https://www.mediafire.com/file/hnpf3osrsqfy9s5/Vynx_Mix_Skin_February.osk/file)
 
