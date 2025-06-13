@@ -31,4 +31,4 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 
   # May-June 2025
 
-* [Vynx Blue Mix](https://www.mediafire.com/folder/l37r1xjy4sut9/Vynx+Blue+Mix)
+* [Vynx Blue Mix (NM & DT)](https://www.mediafire.com/folder/l37r1xjy4sut9/Vynx+Blue+Mix)
