@@ -1,4 +1,4 @@
-# osu-skins
+# Vynx Osu Skins
 
 im lazy to put every of my skins in the bio, so i decide to make a github where all my skins was in here
 
