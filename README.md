@@ -37,4 +37,4 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 
 * [Pastel v1.1 Vynx Edit](https://www.mediafire.com/folder/cfh96ikhgsqlx/Pastel+v1.1+Edit) | [Original](https://compendium.skinship.xyz/2024-08-07/1959731)
 
-* ![image](https://i.ppy.sh/3263016a2203363aa4f2146231646d0c502108b4/68747470733a2f2f692e6962622e636f2f4350507142644e2f70617374656c2d6261636b67726f756e642e706e67)
+ ![image](https://i.ppy.sh/3263016a2203363aa4f2146231646d0c502108b4/68747470733a2f2f692e6962622e636f2f4350507142644e2f70617374656c2d6261636b67726f756e642e706e67)
