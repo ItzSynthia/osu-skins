@@ -35,4 +35,4 @@ im lazy to put every of my skins in the bio, so i decide to make a github where 
 
   # August 2025
 
-* [Pastel v1.1 Vynx Edit](https://www.mediafire.com/folder/cfh96ikhgsqlx/Pastel+v1.1+Edit)
+* [Pastel v1.1 Vynx Edit](https://www.mediafire.com/folder/cfh96ikhgsqlx/Pastel+v1.1+Edit) | [Original](https://compendium.skinship.xyz/2024-08-07/1959731)
