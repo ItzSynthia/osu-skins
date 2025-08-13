@@ -2,6 +2,10 @@
 
 im lazy to put every of my skins in the bio, so i decide to make a github where all my skins was in here
 
+My Unreleased and Old Skin
+* [Folder 1](https://www.mediafire.com/folder/7z9ud67wn2ur1/ItxHirome+Skins)
+* [Folder 2](https://www.mediafire.com/folder/ujn5cz997uhqz/osu!+Skin)
+
 
 # December 2024
 
