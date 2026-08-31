@@ -45,3 +45,11 @@ My Unreleased and Old Skin
 * [Pastel v1.1 Vynx Edit](https://www.mediafire.com/folder/cfh96ikhgsqlx/Pastel+v1.1+Edit) | [Original](https://compendium.skinship.xyz/2024-08-07/1959731)
 
  ![image](https://i.ppy.sh/3263016a2203363aa4f2146231646d0c502108b4/68747470733a2f2f692e6962622e636f2f4350507142644e2f70617374656c2d6261636b67726f756e642e706e67)
+
+   # September 2026
+
+* [Chirou A7 Mix Rafis HDDT](https://link.issou.best/skin/51944) | [Chirou A7 Mix Rafis HDDT (No 100s & 50s)](https://cdn.discordapp.com/attachments/1543496862261059675/1543497392534454322/Chirou_A7_Mix_Rafis_HDDT_No_100s_50s.osk?ex=6a970fb7&is=6a95be37&hm=d2e8c811507111f17586f87a354b8718c2e70fd5debc2eab18e72b4fdfd0ca84&)
+
+ ![image]
+ (https://cdn.discordapp.com/attachments/1543496862261059675/1543496864668721152/screenshot742.jpg?ex=6a970f39&is=6a95bdb9&hm=aa4b6c85e7d81b52e824407c89b8c6aae6e1be737d895de98f80e41b02345faf&)
+
