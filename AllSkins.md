@@ -53,6 +53,4 @@ My Unreleased and Old Skin
 ![image](https://cdn.discordapp.com/attachments/1543496862261059675/1543496864668721152/screenshot742.jpg?ex=6a970f39&is=6a95bdb9&hm=aa4b6c85e7d81b52e824407c89b8c6aae6e1be737d895de98f80e41b02345faf&)
 
 
-* [dtmisu mix (cursor edit)](https://link.issou.best/skin/53823)
-  
-
+* [dtmisu mix (cursor edit)](https://link.issou.best/skin/53823) | [Original Download](https://rin.nekoweb.org/)
